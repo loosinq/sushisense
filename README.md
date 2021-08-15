@@ -1,1 +1,1 @@
-sushi.dev / sushi.#6969
+sushisense / sushi.#6969
